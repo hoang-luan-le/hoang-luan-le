@@ -14,5 +14,5 @@ Machine learning, and learning more every day
 Show Image Show Image Show Image Show Image Show Image Show Image
 
 📫 Connect with me
-LinkedIn: hoangluanle
+LinkedIn: https://www.linkedin.com/in/hoangluanle/
 Email: hoangluan.le@ucalgary.ca
